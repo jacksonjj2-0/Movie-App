@@ -1,1 +1,1 @@
-https://hitendra007.github.io/movie_app/
+https://jacksonjj2-0.github.io/movie_app/
